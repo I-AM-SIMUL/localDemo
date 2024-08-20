@@ -1,1 +1,1 @@
-# My Secend Day Learning
+# My Secend Day Learning to the point 
